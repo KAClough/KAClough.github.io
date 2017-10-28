@@ -1,2 +1,0 @@
-# KAClough
-Personal webpage
